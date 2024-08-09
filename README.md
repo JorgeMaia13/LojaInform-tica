@@ -1,0 +1,1 @@
+# LojaInform-tica
